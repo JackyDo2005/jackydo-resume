@@ -1,1 +1,0 @@
-# jackydo-resume
